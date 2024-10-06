@@ -1,0 +1,2 @@
+# cosas-
+proyecto de estudio
